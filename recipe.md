@@ -1,0 +1,1 @@
+first melt dark chocolate in oven and pour the melted chocolate in mould.Then put the mould in refrigerator... Your chocolate is ready
